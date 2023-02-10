@@ -1,2 +1,2 @@
-# thoughts
-Share the Thoughts
+# Thoughts
+Share your Good Thoughts here
